@@ -1,2 +1,0 @@
-# studious-funicular
-Instruction Purpose
